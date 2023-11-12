@@ -1,1 +1,0 @@
-napisz jakiś wierszyk
